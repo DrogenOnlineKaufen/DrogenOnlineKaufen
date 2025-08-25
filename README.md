@@ -1,6 +1,7 @@
 [![Telegram Gruppe](https://img.shields.io/badge/📲_Join_Telegram_Group-2AABEE?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/+BZciOmP9owNjN2Ux)
 
 # Drogen Online Kaufen
+Telegram Gruppe [https://t.me/+BZciOmP9owNjN2Ux](https://t.me/+BZciOmP9owNjN2Ux)
 
 ![Drogen Online Kaufen](https://imguh.com/images/2025/08/24/tg_trafficd3f3cda251042db5.png)
 
